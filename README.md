@@ -1,0 +1,1 @@
+***HexaEight Provides an Universal Authentication Platform Without Storing User Or Machine Credentials By Employing Patent-Pending Encryption Technology That Enables Seamless Authentication Across Applications Systems and Hardware Devices Using Digital Tokens***
